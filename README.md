@@ -2,7 +2,7 @@
 - 👀 I’m interested in decentralisation of networks
 - 🌱 I’m currently learning blockchain technology
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me at Instagram @mr.assault
+- 📫 You can reach me at janarthananramesh000@gmail.com
  
 
 <!---
